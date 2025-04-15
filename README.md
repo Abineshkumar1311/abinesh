@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm [Your Name]
+# 👋 Hi there, I'm [ABINESH KUMAR S]
 
 ### 🚀 AI Student | Developer | Tech Enthusiast  
 🔍 Passionate about building intelligent systems and solving real-world problems through data and technology.  
